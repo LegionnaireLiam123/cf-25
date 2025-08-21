@@ -6,9 +6,6 @@
 3) Accidentally got scammed $50 at a food truck in America
 
 # Allison
-1) idea
-2) idea
-3) idea
 
 # Roman
 
@@ -23,12 +20,12 @@
 2. have a sister
 3. have a fish
 
-# emma 
-1. been to the south island 
-2. have a sister
-3. have a brother 
-
 # ben
 1. i think liam is awesome
 2. deacon is stinky sometimes
 3. were week 5 into class and i dont know how to code anything besides a fucking circle
+
+# LIAM
+1. im 30 years young
+2. im 22 years young
+3. i was born in 2002
