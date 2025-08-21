@@ -66,13 +66,18 @@
 
 2: I once fell off my bike into a moving bus
 
-3: Can rach every part of my back with one hand
+3: Accidentally broke someones nose in the club dancing
 
 
 # deacon 
 1. i have a dumb corgi
 2. my spine is straight
 3. im freaky
+
+# liam
+1. deacon is clash-brained
+2. ben helped me to get this to work
+3. im lying here
 
 # Zoe
 1. I almost set a table on fire while playing with the fire
@@ -84,8 +89,3 @@
 1) Pen Palled with Princess Kate
 2) Plays the drums
 3) Met Tyler The Creator
-
-# Catlin
-1. i have a stray pet cat
-2. i have an nintendo switch
-3. i have traveled to europe
